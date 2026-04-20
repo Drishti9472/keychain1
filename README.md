@@ -6,3 +6,4 @@ Got hands-on exposure to designing custom keychains using Onshape and learned ho
 This session really helped me in understanding the practical side of design and manufacturing.
 
 Grateful for the opportunity to learn and explore something new!
+https://kommodo.ai/i/oOZIHNAJa51FDNCBsd9t
